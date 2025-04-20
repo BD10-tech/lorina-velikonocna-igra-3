@@ -1,1 +1,1 @@
-# lorina-velikonocna-igra-3
+Lorina velikonočna igra
